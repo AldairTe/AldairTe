@@ -17,17 +17,11 @@
 
 🤖 Desarrollador Android con más de 6 años de experiencia y 20+ apps publicadas en Google Play Store
 
-🌍 Freelance para clientes en Perú, Argentina, Colombia, Honduras, Venezuela, Bolivia y Estados Unidos
-
-📱 +80,000 descargas orgánicas en una sola app, monetizadas con Google AdMob
-
-🎓 Estudiante de IX ciclo de Ingeniería de Sistemas Computacionales — Universidad Privada del Norte
+💼 Freelance
 
 🎥 Creador de contenido tech en YouTube: [@clasesconaldair](https://youtube.com/@clasesconaldair)
 
 📫 Contáctame: **aldairtello00@gmail.com**
-
-⚡ Fun fact: Empecé a conseguir clientes internacionales publicando mis apps en YouTube — sin invertir en publicidad
 
 ## 🌐 Socials
 
